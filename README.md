@@ -1,1 +1,0 @@
-# Elliot-Jordans-SU24-Slutprojekt
